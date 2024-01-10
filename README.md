@@ -34,7 +34,7 @@ I specialize in leveraging geospatial data and machine learning techniques to un
 
 - Instagram: [[@ahmadfurqaanhassan]](https://instagram.com/ahmadfurqaanhassan?igshid=OGQ5ZDc2ODk2ZA==)
 - LinkedIn: [[Ahmad Furqan Hassan]](https://www.linkedin.com/in/ahmad-furqan-hassan/)
-- Email: ahmad.ms.crs@pu.edu.pk
+- Email: ahmadfurqanhassan@gmail.com
 
 I'm always open to interesting conversations and collaboration opportunities. Feel free to reach out!
 <!--
